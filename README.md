@@ -1,1 +1,1 @@
-# DnD
+# DnD - Prepare to Summarize Edition
